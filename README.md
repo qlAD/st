@@ -1,4 +1,4 @@
-来自KiteAb的st
+来自KiteAB的st
 ------------
 
 安装
